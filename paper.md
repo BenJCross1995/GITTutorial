@@ -1,6 +1,9 @@
 # Random Nonsense
 
-# By Ben Cross
+# Author
+
+Ben Cross
+That guy
 
 # Introduction
 
