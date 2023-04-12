@@ -1,6 +1,10 @@
 # Random Nonsense
+Simulations laaa
 
-# By Ben Cross
+# Author
+
+Benjamin Cross
+Ben Cross
 
 # Introduction
 
