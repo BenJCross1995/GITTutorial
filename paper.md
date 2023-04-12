@@ -97,3 +97,7 @@ models kidddaa
 # results
 
 sopme maddddd results der laa
+
+# figures
+
+addd
