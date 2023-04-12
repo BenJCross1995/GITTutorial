@@ -85,3 +85,7 @@ When asked for comment, representatives for the Tolkien estate and the filmmaker
 It remains to be seen whether Ali G's claim will be substantiated, but for now, the comedian seems convinced that he and Gollum share a brotherly bond.
 
 "Me and Gollum, we's got each other's backs, innit," Ali G said. "We's gonna take over da world, one precious at a time."
+
+# Add More
+
+added moetrsajdsb;kgnsd;fg
